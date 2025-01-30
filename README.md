@@ -5,8 +5,7 @@
 Tbh, I was always fine with being just mid/me… if you'd allow me to choose. People always have to be allowed to choose.  
 (the elephant in the room would also like to be acknowledged at some point)
 
-tldr: (Bach) memes. look up the catalog no which my moniker references, and listen to just the last movement if you don't got
-time. it's pretty nice I must say.
+TLDR: just memes, no strings attached
 
 ---
 
